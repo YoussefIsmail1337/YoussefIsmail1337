@@ -17,7 +17,7 @@ Avid gamer by night[^*] 🎮**
 
 and more!
 
-📫 Connect with me on [LinkedIn](https://picsum.photos/200)
+📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/youssef-ismail-0317a2285/).
 
 [^*]: **When there are no deadlines**
 
